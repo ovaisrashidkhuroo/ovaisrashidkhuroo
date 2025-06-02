@@ -41,4 +41,4 @@
 ### 📫 Let's Connect
 - 📧 [ovaserashid@gmail.com](mailto:ovaserashid@gmail.com)
 - 🌐 [Portfolio website](#coming-soon)
-- 💼 [LinkedIn](www.linkedin.com/in/ovais--rashid)
+- 💼 [LinkedIn](https://www.linkedin.com/in/ovais--rashid)
